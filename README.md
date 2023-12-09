@@ -1,1 +1,2 @@
-hímvessző, hímtag, fütyülő, fütyi, kukac, bájdorong, hancúrléc, fallosz, lingam, kuki, fütykös, himbilimbi, pucu, pöcörő, puca, férfi nemiszerv, bögyörő, cerka, nemi végtag, nyeles aszpirin, bőrös virsli, biga, örömrúd, férfiasság, tök, minibicska, pömpölő, dárda, hancurvessző, pisilő
+Veres Imre
+SZTE - 19
