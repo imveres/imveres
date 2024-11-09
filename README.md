@@ -1,2 +1,2 @@
 Veres Imre
-SZTE - 19
+SZTE - 20
